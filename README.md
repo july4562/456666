@@ -24,4 +24,4 @@ HTTPS加密协议：正规的安全网站会使用HTTPS加密协议，这样可�
 
 无恶意广告：安全的站点不会强制跳转广告或要求用户下载不明插件。优质平台会提供清爽的观看环境，确保你能够顺畅地享受影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/july4562/456666 ）</span>
